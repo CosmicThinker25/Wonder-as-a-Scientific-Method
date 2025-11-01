@@ -1,4 +1,5 @@
-El asombro como método científico
+<h1 align="center"><b>El asombro como método científico</b></h1>
+
 
 He echado un vistazo a la entrevista de Avi Loeb en The Joe Rogan Experience. Internet está absolutamente revolucionado con 3i/Atlas, especialmente desde que Loeb puso sobre la mesa la posibilidad de que pudiera tratarse de tecnología extraterrestre. En YouTube hay innumerables vídeos que abordan el tema desde perspectivas muy diferentes: desde quienes ya asumen un ataque interestelar inminente, pasando por las visiones escépticas más conservadoras, hasta las evaluaciones más moderadas. La verdad es que disfruto genuinamente viendo todos los puntos de vista que han surgido.
 
